@@ -1,2 +1,2 @@
 # mcq
-a person who wants to konw more
+a person who wants to know more
