@@ -1,2 +1,2 @@
 # mcq
-a person who want konws more
+a person who wants to konw more
